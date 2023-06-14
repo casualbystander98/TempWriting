@@ -5,7 +5,6 @@ This is a temporary home for my writing until I can get it moved over to AO3 whe
 
 
 ## Current Stories
----
 
 #### **The Cabin**
 > A young girl (reader) is kidnapped and taken to a cabin, where her life will change forever. 
@@ -57,7 +56,6 @@ This is a temporary home for my writing until I can get it moved over to AO3 whe
 
 
 ## Planned Stories
----
 
 #### **Peregrine**
 > The protagonist of The Cabin (reader) explores her new life.
